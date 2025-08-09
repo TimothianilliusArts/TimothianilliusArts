@@ -1,9 +1,4 @@
-im timothianilliusarts
-call me tim (not my real name)
-im human
-im an animator
-red pyro gaming
-what do people usually put in these
+all roads lead to super hell
 
 <!---
 TimothianilliusArts/TimothianilliusArts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
